@@ -1,0 +1,1 @@
+# samsung-redesign-e-commerce
